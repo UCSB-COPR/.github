@@ -52,6 +52,6 @@ Conservation and Outreach Assistant, Coal Oil Point Reserve
 **Email:** [samuelcervantes@ucsb.edu](mailto:samuelcervantes@ucsb.edu)
 
 You can also contact **Cris Sandoval**, Reserve Director, for general inquiries:  
-**Email:** [cris.sandoval@ucsb.edu](mailto:cris.sandoval@ucsb.edu)
+**Email:** [sandoval@ucsb.edu](mailto:sandoval@ucsb.edu)
 
 ---
